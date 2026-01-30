@@ -26,7 +26,7 @@ oh the joys of being multifandom
 
 - GHE
 
-- Roblox
+- ██████
 
 - Xploshi Entertainment
 
@@ -52,7 +52,7 @@ oh the joys of being multifandom
 
 - Studio Ghibli
 
-- Roblox Pressure
+- ██████ ████████
 
 - Fruitiger Aero
 
@@ -60,10 +60,10 @@ oh the joys of being multifandom
 
 - TADC
 
-- Regretevator
+- ████████████
 
 - Vocaloid
 
-- Blocktales
+- ██████████
 
 - ENA: Dream BBQ
