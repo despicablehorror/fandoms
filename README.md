@@ -54,7 +54,7 @@ oh the joys of being multifandom
 
 - ██████ ████████
 
-- Fruitiger Aero
+- Frutiger Aero
 
 - Murder Drones
 
