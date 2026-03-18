@@ -15,7 +15,7 @@ $${\color{#ffffff}What \space I \space like \space (Not \space finished)}$$<p>
   <br>
 <p>
 <p align="center">
-  <sub>half-life + hlvrai, scp, ninah, doctor nowhere, wobbledogs, lacey's flash games, gemini home entertainment, dhmis, frutiger aero / metro, pony town</sub><br>
+  <sub>half-life + hlvrai, scp, ninah, doctor nowhere, wobbledogs, lacey's flash games, gemini home entertainment, dhmis, frutiger aero / metro, pony town, tomodachi life</sub><br>
   <br>
 <p>
 <p align="center">
