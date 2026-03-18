@@ -11,7 +11,7 @@ $${\color{#ffffff}What \space I \space like \space (Not \space finished)}$$<p>
 <br>
 <p>
 <p align="center">
-  $${\color{#ffffff}Fandoms \space (Not \space in \space order)}$$<p>
+  $${\color{#ffffff}Fandoms \space (In \space no \space particular \space order \space order)}$$<p>
   <br>
 <p>
 <p align="center">
