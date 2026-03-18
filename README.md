@@ -1,1 +1,10 @@
-<img src="https://github.com/user-attachments/assets/abb590ab-602e-45e7-bc35-79a886156eca" width="380px">
+<p align="center">
+╭──────────.★..─╮
+<p>
+<p align="center">
+$${\color{#ffffff}Interests \space and \space fandoms}$$<p>
+<p align="center">
+╰─..★.──────────╯
+
+$${\color{#ffffff}TEXT}$$
+seperate words with '\space'
