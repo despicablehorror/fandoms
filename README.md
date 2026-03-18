@@ -3,7 +3,7 @@
 ╭──────────.★..─╮
 <p>
 <p align="center">
-$${\color{#ffffff}What \space I \space like}$$<p>
+$${\color{#ffffff}What \space I \space like \space (Not \space finished)}$$<p>
 <p align="center">
 ╰─..★.──────────╯
 <br>
