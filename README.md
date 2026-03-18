@@ -19,11 +19,11 @@ $${\color{#ffffff}What \space I \space like \space (Not \space finished)}$$<p>
   <br>
 <p>
 <p align="center">
-  $${\color{#ffffff}Interests \space / \space Hobbies}$$<p>
+  $${\color{#ffffff}Interests \space / \space Hobbies \space or \space things \space I \space enjoy \space doing}$$<p>
   <br>
 <p>
 <p align="center">
-  <sub>hanging and chatting out with friends, drawing, tornado/air raid siren videos, music, reading</sub><br>
+  <sub>hanging and chatting out with friends, drawing both digitally and traditionallg, tornado/air raid siren videos, music, reading, playing garry's mod, making kandi bracelets, crocheting, working on html (like this :3), making stuff on pony town</sub><br>
 
 
 <p align="center"><img width="657" height="80" src="https://github.com/user-attachments/assets/41f4ea55-d776-4ab6-bfae-e09ac946e135" />
