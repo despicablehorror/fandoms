@@ -1,30 +1,28 @@
-<p align="center"><img width="657" height="80" src="https://github.com/user-attachments/assets/0b34014a-2695-4f10-a23b-ec36ed8faafb" />
-<br>
-╭──────────.★..─╮
-<p>
-<p align="center">
-$${\color{#ffffff}What \space I \space like \space (Not \space finished)}$$<p>
-<p align="center">
-╰─..★.──────────╯
-<br>
+fandoms and interests
 
 <br>
-<p>
-<p align="center">
-  $${\color{#ffffff}Fandoms \space (In \space no \space particular \space order \space order)}$$<p>
-  <br>
-<p>
-<p align="center">
-  <sub>half-life + hlvrai, scp, postal, ninah, doctor nowhere, gmod, portal, wobbledogs, s:cotl, lacey's flash games, gemini home entertainment, dhmis, thsc</sub><br>
-  <br>
-<p>
-<p align="center">
-  $${\color{#ffffff}Interests \space / \space Hobbies \space or \space things \space I \space enjoy \space doing}$$<p>
-  <br>
-<p>
-<p align="center">
-  <sub>hanging and chatting out with friends, drawing both digitally and traditionallg, tornado/air raid siren videos, music, reading, playing garry's mod, making kandi bracelets, crocheting, working on html (like this :3), making stuff on pony town</sub><br>
-
-
-<p align="center"><img width="657" height="80" src="https://github.com/user-attachments/assets/41f4ea55-d776-4ab6-bfae-e09ac946e135" />
+half-life + hlvrai
 <br>
+scp
+<br>
+postal
+<br>
+ninah
+<br>
+doctor nowhere
+<br>
+gmod
+<br>
+portal
+<br>
+wobbledogs
+<br>
+s:cotl
+<br>
+lacey's flash games
+<br>
+gemini home entertainment
+<br>
+dhmis
+<br>
+thsc
