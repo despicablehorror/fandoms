@@ -1,4 +1,4 @@
-fandoms and interests
+fandoms and interests, not really in any order
 
 <br>
 half-life + hlvrai
@@ -7,6 +7,14 @@ scp
 <br>
 postal
 <br>
+peak
+<br>
+crk
+<br>
+tf2
+<br>
+jolly wangcore
+<br>
 ninah
 <br>
 doctor nowhere
@@ -14,6 +22,8 @@ doctor nowhere
 gmod
 <br>
 portal
+<br>
+charborg
 <br>
 wobbledogs
 <br>
